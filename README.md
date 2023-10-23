@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&random=true&width=435&lines=Ciao%2C+I+am+Luca%2C+just+another+fellow+%3Cdeveloper+%2F%3E.)](https://sirlisko.com?ref=readme)
